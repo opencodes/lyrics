@@ -86,3 +86,7 @@ Quirky Folk/Indie Pop, Playful, Energetic, Humorous, Acoustic guitar, Acoustic g
 
 
  Gospel, Joyful, Uplifting, Celebratory, Piano, Organ, Gospel choir vocals, Drum kit, Uplifting brass, Bass guitar, 
+
+
+
+ How can I express what she will be like? | Gospel | English Song
