@@ -66,7 +66,7 @@ P-Funkwave,
 Lo-fi Classic Soft Rock Indian-style
 
 
-Catchy Instrumental intro, Horror. Dark. fast aggressive rap.   
+Catchy Instrumental intro,  Dark.  aggressive rap.   
 bollywood romantic
 
 bollywood 70s chill, emotional, soulful, adult contemporary, vaporwave, synth breakdown, sophisticated, sharp, crisp
