@@ -13,3 +13,7 @@ Style:
 - ethereal trance, spiritual,  Indian-style House EDM slow track
 - ethereal trance, spiritual,  Indian-style 
 
+ethereal trance, spiritual,  Indian-style House EDM slow track
+
+
+Craft an 8k, hyper-realistic oil painting portraying an  indian woman as a DJ, performing on a high stage. She wears a blak dress showing devotion to lord shiva, complemented by similar jewelry.  The dynamic pose captures her energy and presence. The background is public music show, with lights and joy colors scattered in the air, adding a touch of vibrancy and movement. As she spins the decks, the stage resonates with the powerful vibrations of Lord Shiva's shloka, infusing the scene with a spiritual essence and dynamic energy. Put lord shiva ling on center stage
