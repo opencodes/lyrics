@@ -74,3 +74,6 @@ bollywood 70s chill, emotional, soulful, adult contemporary, vaporwave, synth br
 
 
 prompt to generate  10 unique and catchy cinematic lord ram image  kepp space available in left to write title
+
+
+Ancient Sanskrit recitations invoking spiritual resonance and meditative tranquility, melodic, fast track
