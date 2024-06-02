@@ -20,7 +20,7 @@ Bhajan,  Gazal,  Slow Melody  Slow Male Voice
 Fuse elements of Indian bollywood music with modern instrumentation. Soothing  Devotional Vedic Fast Track
 Fuse elements of Indian classical music with modern instrumentation. Soothing  Devotional Vedic ethereal trance,
 
-
+slow indie-pop, calm, nostalgic, dramatic, catchy, beat, piano, indian-style
 
 SONG	STYLE
 अयि गिरिनन्दिनि	"808 On the 1, 
