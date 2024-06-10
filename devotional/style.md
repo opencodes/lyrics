@@ -74,3 +74,5 @@ prompt to generate  10 unique and catchy cinematic lord ram image  kepp space av
 
 
 Ancient Sanskrit recitations invoking spiritual resonance and meditative tranquility, melodic, fast track
+
+Fuse elements of Indian classical music with modern instrumentation. slow,80s,male voice,hard rock,disco,  
