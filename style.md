@@ -77,3 +77,5 @@ Ancient Sanskrit recitations invoking spiritual resonance and meditative tranqui
 
 Fuse elements of Indian classical music with modern instrumentation. slow,80s,male voice,hard rock,disco,  
 Fuse elements of Indian classical music with modern instrumentation.  rock,   female voice,   disco,  pop, beat
+
+ethereal trance,  spiritual,  Indian-style devotional ,  loud ,  powerful,  energetic
