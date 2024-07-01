@@ -79,3 +79,12 @@ Fuse elements of Indian classical music with modern instrumentation. slow,80s,ma
 Fuse elements of Indian classical music with modern instrumentation.  rock,   female voice,   disco,  pop, beat
 
 ethereal trance,  spiritual,  Indian-style devotional ,  loud ,  powerful,  energetic
+
+
+
+Shloka:
+- Dream trance, house, techno, trance, ambient　Modern EDM , Melody  90's Rap
+- ethereal trance, spiritual,  Indian-style House EDM slow track
+- ethereal trance, spiritual,  Indian-style 
+
+ethereal trance, spiritual,  Indian-style House EDM slow track
