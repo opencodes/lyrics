@@ -89,3 +89,7 @@ Shloka:
 
 ethereal trance, spiritual,  Indian-style House EDM slow track
 ethereal trance,  spiritual,   Indian-style ,  Tabla,  Dholak,  Kartals,  Harmonium,  Tambourine,  soothing,  slow,  relaxation
+
+Create a tranquil and contemplative ambiance,  suitable for relaxation and spiritual reflection, 
+ethereal trance, spiritual,Indian-style,Tabla, Dholak, Kartals, Harmonium, Tambourine, soothing, slow, relaxation
+
