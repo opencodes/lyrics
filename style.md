@@ -88,3 +88,4 @@ Shloka:
 - ethereal trance, spiritual,  Indian-style 
 
 ethereal trance, spiritual,  Indian-style House EDM slow track
+ethereal trance,  spiritual,   Indian-style ,  Tabla,  Dholak,  Kartals,  Harmonium,  Tambourine,  soothing,  slow,  relaxation
