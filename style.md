@@ -92,4 +92,6 @@ ethereal trance,  spiritual,   Indian-style ,  Tabla,  Dholak,  Kartals,  Harmon
 
 Create a tranquil and contemplative ambiance,  suitable for relaxation and spiritual reflection, 
 ethereal trance, spiritual,Indian-style,Tabla, Dholak, Kartals, Harmonium, Tambourine, soothing, slow, relaxation
-
+devotional,   raag pahadi,  trance,  temple,  hindi classical,  temple bells,  flute,   
+hindi folk inspired bhajan
+Carnatic 
