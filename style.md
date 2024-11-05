@@ -95,3 +95,4 @@ ethereal trance, spiritual,Indian-style,Tabla, Dholak, Kartals, Harmonium, Tambo
 devotional,   raag pahadi,  trance,  temple,  hindi classical,  temple bells,  flute,   
 hindi folk inspired bhajan
 Carnatic 
+spiritual,  Indian-style, ,  sanskrit,  slow-track,  devotional,  duet voice hip-hop,  rap
