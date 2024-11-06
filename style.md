@@ -96,3 +96,4 @@ devotional,   raag pahadi,  trance,  temple,  hindi classical,  temple bells,  f
 hindi folk inspired bhajan
 Carnatic 
 spiritual,  Indian-style, ,  sanskrit,  slow-track,  devotional,  duet voice hip-hop,  rap
+spiritual, Indian-style, sanskrit, slow-track, devotional, duet voice hip-hop, rap, melodic
