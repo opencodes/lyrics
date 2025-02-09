@@ -28,3 +28,24 @@ classic bhojpuri , extreme slow melody , Call to Prayer Male Hindustani Traditio
 Hindi devotional, Sweet mellifluous vocals use instrument  flute, dholak, tabla, Mandolin, and harmonium, Sitar music in background, ballad,  house, extreme slow music, bell sound ,
 
 Fuse elements of Indian classical music with instrument  flute, dholak,  sitar,  tabla,  dholak, Mandolin,  flute,  and harmonium. Romantic Melodic Extreme Slow Track, 
+
+Bhajan,   Gazal,   Slow Melody  ,  Extreme Slow ,  male Voice ,  house,  folk,  sensual voice,
+
+use instrument  flute, dholak, tabla, Mandolin, and dholak, sitar music in background
+
+Bhajan, Gazal, Slow Melody, Extreme Slow, male Voice, house, folk, use instrument  flute, dholak, tabla, Mandolin, and harmonium, sitar music in background
+
+classic bhojpuri , extreme slow melody , Call to Prayer Male Hindustani Traditional, use instrument  flute, dholak,  sitar,  tabla,  dholak, Mandolin, harmonium, sitar music in background
+
+indian classical, Slow Melody, Extreme Slow, male Voice, Call to Prayer Male Hindustani Traditional, use instrument  flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
+
+indian classical, slow track, Call to Prayer Male Hindustani Traditional, use instrument  flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
+
+indian classical Bhajan, Gazal, Slow Melody, Extreme Slow, male Voice, house, folk, use instrument  flute, dholak, tabla, Mandolin, loud harmonium, dholak, sitar music in background
+
+
+create in slow indian classical music
+Extreme slow Indian classical music instrumental  use instrument  flute, dholak, tabla, Mandolin, loud harmonium, dholak, sitar music in background
+
+
+Clear Vocal, Tabla, Harmonium, Flute, Sitar, Mridangam, Veena, Devotional, female singer, spiritual
