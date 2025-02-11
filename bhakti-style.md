@@ -53,3 +53,13 @@ ethereal trance, spiritual, Indian-style , Tabla, Dholak, Kartals, Harmonium, Ta
 Bhajan, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house, folk, melodic
 
 Bhajan, Gazal, male Voice, house, folk, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
+
+Bhajan, Gazal, Slow Melody, Extreme Slow, male Voice, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar music in background, energetic, powerful, uplifting
+
+Gazal, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house, folk, melodic, ballad
+
+Gazal, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house, ballad
+
+Gazal, Slow Melody , Extreme Slow Melody, male Voice , house, folk, sensual voice, ballad, tabla music in background
+
+Gazal, Slow Melody , Extreme Slow Melody, male Voice , house, folk, sensual voice, ballad, tabla music in background
