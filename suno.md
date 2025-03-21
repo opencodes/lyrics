@@ -1873,7 +1873,7 @@ R
 ● Rhapsodic
 ● Rhythmic
 ● Rich
-● Righteous
+● RighteousB
 ● Rigid
 ● Ringing
 ● Rippling

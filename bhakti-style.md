@@ -4,7 +4,7 @@ Hindi devotional, Sweet mellifluous vocals, flute, Sitar music in background, me
 
 bhojpuri, devotional, dance, energetic, powerful, indie pop rock
 
-romantic, ballad, ballad, melodic metal
+romantic, ballad, melodic metal
 
 Hindi devotional, Sweet mellifluous vocals, flute, Sitar music in background, melody, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, flute, and harmonium
 
@@ -26,7 +26,6 @@ Hindi devotional, Sweet mellifluous vocals use instrument flute, dholak, tabla, 
 Fuse elements of Indian classical music with instrument flute, dholak, sitar, tabla, dholak, Mandolin, flute, and harmonium. Romantic Melodic Extreme Slow Track,
 
 Bhajan, Gazal, Slow Melody , Extreme Slow , male Voice , house, folk, sensual voice,
-
 use instrument flute, dholak, tabla, Mandolin, and dholak, sitar music in background
 
 Bhajan, Gazal, Slow Melody, Extreme Slow, male Voice, house, folk, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar music in background
@@ -50,7 +49,7 @@ Bhajan,soothing, slow, relaxation, male Voice, house, folk, use instrument flute
 
 ethereal trance, spiritual, Indian-style , Tabla, Dholak, Kartals, Harmonium, Tambourine, soothing, slow, relaxation
 
-Bhajan, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house, folk, melodic
+Gazal, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house, folk, melodic
 
 Bhajan, Gazal, male Voice, house, folk, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
 
@@ -63,3 +62,32 @@ Gazal, soothing, slow, relaxation, male Voice, Extreme Slow Sensual Voice, house
 Gazal, Slow Melody , Extreme Slow Melody, male Voice , house, folk, sensual voice, ballad, tabla music in background
 
 Gazal, Slow Melody , Extreme Slow Melody, male Voice , house, folk, sensual voice, ballad, tabla music in background
+Bhajan, soothing,ballad, male Voice, Extreme Slow  Voice, house, folk, melodic use instrument flute, dholak, tabla, Mandolin, and harmonium,  dholak music in background
+
+use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background, 
+energetic, loud and slow,  powerful, melodic
+
+classic bhojpuri slow Call to Prayer Male Hindustani Traditional, ballad, loud voice but extreme slow,  use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background,
+
+classic bhojpuri slow Call to Prayer Male Hindustani Traditional, ballad, loud voice but extreme slow, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
+
+
+Bhajan,ballad,  Gazal, Slow Melody , Extreme Slow , male Voice , house, folk, sensual voice,
+use instrument flute, dholak, tabla, Mandolin, and dholak, sitar music in background
+
+
+
+Indian classic music, melodic track, festive, energetic, powerful, loud Devotional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, dholak music in background
+
+
+indian classical Bhajan, Gazal, Sweet Melody, male Voice, house, folk, use instrument flute, dholak, tabla, Mandolin, loud harmonium, dholak, sitar music in background, rap, 
+
+
+Indian classic music, Devotional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, dholak music in background
+
+
+classic bhojpuri slow Call to Prayer Male Hindustani Traditional, happy, loud voice but extreme slow, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
+
+indian classical, Slow Melody,female Voice, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
+
+indian classical, Extreme Slow Melody, female Voice, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background

@@ -1,12 +1,21 @@
 Emotional Tone: Serene and uplifting
+
 Musical Elements: Incorporate sitar, flute, and tabla for a traditional yet contemporary feel.
+
 Cultural Influence: Fuse elements of Indian classical music with modern instrumentation.
+
 Vocal Style: Melodic vocals with a soothing and meditative quality.
+
 Mood and Atmosphere: Create a tranquil and contemplative ambiance, suitable for relaxation and spiritual reflection.
+
 These combined options aim to capture the essence of "Suno Ai" by blending traditional and modern musical elements while maintaining a serene and uplifting mood.
+
 Create a tranquil and contemplative ambiance, suitable for relaxation and spiritual reflection. Bhajan, Indian-style
+
 Fuse elements of Indian devotional music with modern instrumentation.
+
 Fuse elements of Indian classical music with modern instrumentation. Romantic Melodic Fast Track
+
 Fuse elements of Indian devotional music with modern instrumentation. Melody , Energetic 
 
 
@@ -14,7 +23,9 @@ Sanskrit mantra fast clear pronunciation in loop indian-style
 
 
 Bhajan,  Gazal,  Slow Melody  Slow Male Voice
+
 Fuse elements of Indian bollywood music with modern instrumentation. Soothing  Devotional Vedic Fast Track
+
 Fuse elements of Indian classical music with modern instrumentation. Soothing  Devotional Vedic ethereal trance,
 
 slow indie-pop, calm, nostalgic, dramatic, catchy, beat, piano, indian-style
@@ -35,16 +46,22 @@ Ekdantay	ethereal trance, spiritual, Indian-style , fast track,
 
 "
 	deep intense cinematic sanskrit fast track devotional
+
 	classic bhojpuri slow Call to Prayer Male Hindustani Traditional
+
 	devotional sanskrit fast track male voice
+
 	ethereal trance, spiritual, Indian-style chanting fast track
 	
 	deep intense cinematic sanskrit fast track devotional chanting spiritual
 	
 	Dream trance, house, techno, ambient Modern EDM , Arabian [Oud, Nai, Kanun, Violin, Riku, Darbuka]
+
 	Soulful R&B [Electric piano (Wurlitzer), electric guitar, brass section, funky bassline, drums with groove.] Jazzy
 	hindi-style melody Call of prayer bhajan
+
 	Create a tranquil and contemplative ambiance, suitable for relaxation and spiritual reflection. Bhajan, Indian-style
+	
 	Fuse elements of Indian classical music with modern instrumentation.
 	Fuse elements of Indian classical music with modern instrumentation. Melody Fast Track
 	Fuse elements of Indian classical music with modern instrumentation. Melody , Energetic
@@ -97,3 +114,5 @@ hindi folk inspired bhajan
 Carnatic 
 spiritual,  Indian-style, ,  sanskrit,  slow-track,  devotional,  duet voice hip-hop,  rap
 spiritual, Indian-style, sanskrit, slow-track, devotional, duet voice hip-hop, rap, melodic
+
+classic bhojpuri slow Call to Prayer Male Hindustani Traditional
