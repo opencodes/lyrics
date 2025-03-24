@@ -1,73 +1,24 @@
-Naseeb mein jiske jo likha tha
+ 
 
-Woh teri mehfil mein kaam aaya
+नसीब में जिसके जो लिखा था
+वो तेरी महफ़िल में काम आया
+किसी के हिस्से में प्यास आई
+किसी के हिस्से में जाम आया
 
-Naseeb mein jiske jo likha tha
+मैं इक फ़साना हूँ बेकसी का
+ये हाल है मेरी ज़िंदगी का
+न हुस्न ही मुझको रास आया
+न इश्क़ ही मेरे काम आया
+नसीब में ...
 
-Woh teri mehfil mein kaam aaya
+बदल गईं तेरी मंज़िलें भी
+बिछड़ गया मैं भी कारवां से
+तेरी मुहब्बत के रास्ते में
+न जाने ये क्या मकाम आया
+नसीब में ...
 
-Kisi ke hisse mein pyas aayi
-
-Kisi ke hisse mein jaam aaya
-
-Naseeb mein jiske jo likha tha
-
-Main ek fasana hoon bekasi ka
-
-Yeh haal hai meri zindagi ka
-
-
-Main ek fasana hoon bekasi ka
-
-Yeh haal hai meri zindagi ka
-
-Yeh haal hai meri zindagi ka
-
-Na husn hi mujhko raas aaya
-
-Na ishq hi mere kaam aaya
-
-Naseeb mein jiske jo likha tha
-
-Badal gayin teri manzilein bhi
-
-Bichad gaya main bhi karwan se
-
-Badal gayin teri manzilein bhi
-
-Bichad gaya main bhi karwan se
-
-Bichad gaya main bhi karwan se
-
-Teri mohabbat ke raaste mein
-
-Na jaane yeh kya maqaam aaya
-
-Naseeb mein jiske jo likha tha
-
-Tujhe bhulane ki koshishein bhi
-
-Tamaam nakaam ho gayi hain
-
-Tujhe bhulane ki koshishein bhi
-
-Tamaam nakaam ho gayi hain
-
-Tamaam nakaam ho gayi hain
-
-Kisi ne zikr-e-wafaa kiya jab
-
-Zuban pe tera hi naam aaya
-
-Naseeb mein jiske jo likha tha
-
-Woh teri mehfil mein kaam aaya
-
-Kisi ke hisse mein pyas aayi
-
-Kisi ke hisse mein jaam aaya
-
-Naseeb mein jiske jo likha tha
-
-
-
+तुझे भुलाने कि कोशिशें भी
+तमाम नाकाम हो गई हैं
+किसी ने ज़िक्र-ए-वफ़ा किया जब
+ज़ुबाँ पे तेरा ही नाम आया
+नसीब में ...
