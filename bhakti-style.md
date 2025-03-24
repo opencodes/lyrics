@@ -72,8 +72,7 @@ classic bhojpuri slow Call to Prayer Male Hindustani Traditional, ballad, loud v
 classic bhojpuri slow Call to Prayer Male Hindustani Traditional, ballad, loud voice but extreme slow, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
 
 
-Bhajan,ballad,  Gazal, Slow Melody , Extreme Slow , male Voice , house, folk, sensual voice,
-use instrument flute, dholak, tabla, Mandolin, and dholak, sitar music in background
+Bhajan, ballad,emotional,   Gazal, Slow Melody , Extreme Slow , Voice , house, folk, sensual voice
 
 
 
@@ -86,8 +85,18 @@ indian classical Bhajan, Gazal, Sweet Melody, male Voice, house, folk, use instr
 Indian classic music, Devotional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, dholak music in background
 
 
-classic bhojpuri slow Call to Prayer Male Hindustani Traditional, happy, loud voice but extreme slow, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
+classic bhojpuri slow, ballad, emotional,   loud voice but extreme slow, use instrument flute, dholak, tabla, Mandolin, and harmonium, sitar, dholak music in background
 
 indian classical, Slow Melody,female Voice, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
 
 indian classical, Extreme Slow Melody, female Voice, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
+
+
+indian classical, Extreme Slow Melody, ballad, emotional, Gazal, Sweet Melody, male Voice, house, folk, use instrument flute, dholak, tabla, Mandolin, loud harmonium, dholak, sitar music in background, rap, 
+
+
+indian classical,emotional, ballad,  Slow Melody,female Voice, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, sitar music in background
+
+indian classical,emotional, ballad, pain, cry, Slow Melody, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, dholak music in background
+
+indian classical,emotional, ballad, pain, cry, Slow Melody, Call to Prayer Hindustani Traditional, use instrument flute, dholak, sitar, tabla, dholak, Mandolin, harmonium, dholak music in background

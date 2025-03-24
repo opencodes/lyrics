@@ -7,25 +7,6 @@
 स्वप्न के संसार में,
 किरण के रसधार छी।
 
-[Chorus] 
-मधुर मादक मोहिनी हे  ....
-सरस सुन्दर सांवरी ...
-स्वप्न केर संसार में,
-किरण के रसधार छी।
-
-[Rap Verse]
-(Yeah, yeah)
-She’s the fire, she’s the light, got that golden shine,
-Moves like a dream, like a rhythm divine.
-Soft like the moon but she burnin’ so bright,
-Glowin’ in the dark, she the queen of the night.
- 
-
-मधुर मादक मोहिनी हे ....
-[Instrumental Break]
-
-[Male]
-[Verse] 
 चंद्र बदन चकोर नयना , मिलन केर मधुयामिनी
 चंद्र बदन चकोर नयना , मिलन केर मधुयामिनी
 
@@ -47,8 +28,7 @@ She the calm in the dark, turnin’ night into day.
 
 मधुर मादक मोहिनी हे ....
 [Instrumental Break]
-
-[Male]
+[Male] 
 [Verse] 
 रंग रागक  रागिनी छी ,साज सुर केर  कोकिला 
 रंग रागक  रागिनी छी ,साज सुर केर  कोकिला 
